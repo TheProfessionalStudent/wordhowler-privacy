@@ -119,7 +119,7 @@
   If you have questions about this privacy policy or want to request
   deletion of your data, contact us at:
   
-  **abind.learning@gmail.com**
+  **theappdreamer@gmail.com**
   
   ---
   
